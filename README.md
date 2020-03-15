@@ -1,0 +1,2 @@
+# skripssooyyy
+JIJOYY GRADUATED JULY 2020
